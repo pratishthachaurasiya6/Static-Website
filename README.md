@@ -1,0 +1,1 @@
+![screencapture-file-C-Users-xyz-AppData-Local-Temp-Rar-EXa11288-13558-practical-task-1june-29-june-practical-test-1june-html-2024-08-08-18_05_36](https://github.com/user-attachments/assets/38502ecf-7de1-4d57-8221-63ede1f23c9c)
